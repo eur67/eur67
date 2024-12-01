@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @eur67.
+- 👋 Hi, I’m @chn67.
 - 👀 I’m interested in Exposure to the sun,
 - 🌱 I’m currently learning ai,
 - 💞️ I’m looking to collaborate on english.
